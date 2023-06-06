@@ -1,1 +1,1 @@
-Lola is pretty
+Lola is ugly af
