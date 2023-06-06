@@ -1,1 +1,1 @@
-My first readme
+Lola is pretty
